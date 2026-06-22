@@ -1,6 +1,6 @@
 Hello all you gamers!
 
- 19, walmart employee. trying to live
+ 20, and on my way to live like laryy. thank you thank you
 <img width="1358" height="761" alt="Screenshot 2026-03-22 232808" src="https://github.com/user-attachments/assets/89a8eb14-8669-4775-b193-57712376d3ea" />
 hope we can get along!
 
